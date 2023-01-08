@@ -1,0 +1,9 @@
+* Ücretsizdir, Reklam içermez, Meal indirmenize gerek yoktur.
+* Güvenlidir, Telefonunuzdaki hiçbir dosya,özellik ve kişisel bilgiye erişmez.
+
+http://www.pratikmeal.com
+
+* Pratik Meal ile aynı anda birden fazla meali okuyabilirsiniz...
+* Meal'i okurken bir Ayet'i seçip ekranı sağa/sola kaydırarak, diğer Meal'deki aynı Ayet'i görebilirsiniz. Böylece Meal'leri kolayca karşılaştırmalı okuyabilirsiniz.
+* Kombinasyonlu arama ile hatırlamakta zorlandığınız Ayet'lere kolayca ulaşabilirsiniz...
+* Bulmak istediğiniz Ayet içinde hatırladığınız kelimeleri aralarına virgül yada nokta işareti koyarak yazınız...
